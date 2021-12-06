@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FawkesNet
 - 👀 I’m interested in money.
-- 🌱 I’m currently learning 36135833...
+- 🌱 I’m currently learning crypto.
 - 💞️ I’m looking to collaborate on Quantum Psi
 - 📫 How to reach me mkfawkes@mkoften.com
 
